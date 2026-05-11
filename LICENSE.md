@@ -1,4 +1,4 @@
-
+Get the ultimate Lightroom for macOS addon with Lightroom for macOS secure Addon: social-media-export & layer-based-editing. Featuring social-media-export and layer-based-editing,
 
 
 
